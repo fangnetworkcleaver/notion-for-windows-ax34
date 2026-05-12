@@ -1,4 +1,4 @@
-# 
+# vip Notion for Windows Integration | cloud-sync + export-options offers the most advanced Notion for Windows integration, with cloud-sync and export-options. Ideal for Windows
 
 
 
